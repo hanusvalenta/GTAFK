@@ -1,2 +1,3 @@
 # GTAFK
-can lead to ban idk
+super easy ATH script so you can go touch that grass without waring
+maybie can lead to ban
